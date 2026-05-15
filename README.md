@@ -48,6 +48,6 @@ Admission to OMG BD is currently **Restricted**. We prioritize "Proof of Work" o
 *If you are an architect of the digital future, your work will find its place here.*
 
 ---
-**Institutional Framework by [Your Name/Handle]**  
+**Institutional Framework by [Nahid Mahmud]**  
 *Computer Science & Engineering | Varendra University*  
-*Est. 2026*
+*Est. 15 may ,2026*
